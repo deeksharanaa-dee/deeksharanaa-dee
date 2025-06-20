@@ -6,7 +6,6 @@
 
 💞️ I’m excited to team up on projects that make data fun and useful for everyone!
 
-⚡ Fun fact: I once tracked my coffee habits for a year and learned I’m actually most productive after a good nap!
 
 
 
